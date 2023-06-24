@@ -1,1 +1,1 @@
-# containercloud_new_dash
+hat igazabol, kajak nem volt kedvem ezt folytatni igazabol atirni meg stb.. nem a legmenobb oldal, de azert nem rossz. majdnem reszponziv is, de ha egy okos ember folytatja, az egy kurva jo oldalt tud kihozni belole.
